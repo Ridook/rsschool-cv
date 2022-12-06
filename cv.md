@@ -9,3 +9,5 @@
 1.  ndgtpx@gmail.com.
 
 2. Discord Ridook#0220.
+
+3. [Telegram](https://t.me/Ridook3).
