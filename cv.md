@@ -5,3 +5,7 @@
 ## I am 23 years old.
 
 ## Contact me.
+
+1.  ndgtpx@gmail.com.
+
+2. Discord Ridook#0220.
